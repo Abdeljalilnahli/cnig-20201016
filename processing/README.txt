@@ -1,1 +1,1 @@
-Please unzip the files to get everything
+Please unzip the file to get everything
